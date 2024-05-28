@@ -1,5 +1,5 @@
 - 👋 Hi, I’m svarta
-- - 👀 I’m interested in skakani z garazi
+- 👀 I’m interested in skakani z garazi
 - 🌱 I’m currently learning skakani z garazi
 - 💞️ I’m looking to collaborate on skakani z garazi
 - 📫 How to reach me skakani z garazi
